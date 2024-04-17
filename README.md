@@ -1,3 +1,3 @@
-The Original Owner of RCO has been disconnect in Nov 13, 2023
+The Original Owner of RCO has been disconnected in Nov 13, 2023
 
-and it's will replace with Bloxstrap
+and there new roblox fps to making better of your PC Computer on Roblox, its called Bloxstrap and RCO it's will replace with Bloxstrap
